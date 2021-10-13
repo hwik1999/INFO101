@@ -1,4 +1,4 @@
 # INFO101
 My name is Hunter
-and I'm epic
-lol gamerz
+I'm 22
+I like video games
